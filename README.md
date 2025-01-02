@@ -1,3 +1,7 @@
+# Statement of Personal Philosophy
+**$¢£¤¥ƒ֏؋৲৳৻૱௹฿៛₠₡₢₣₤₥₦₧₨₩₪₫€₭₮₯₰₱₲₳₴₵₶₷₸₹₺₻₼₽₾₿ℳ꠸﷼﹩＄￠￡￥￦¢¤ƒ֏؋৲৳৻૱௹  ฿៛₠₡₢₣₤₥₦₧₩₪₫₭₮₯₰₱₲₳₴₵₹₺₻₼₽₾₿ℳ﷼₶₸**
+
+# Meet Kaai
 ![Man at work drinking.](under-construction.gif)
 
 - 👋 Hi, I’m @kaai-knaagdier
@@ -49,6 +53,6 @@
       / ** / |   \---
       \oo/  |   sjm
   
-Dedicated to Slinkse Ponie, Bek Ruiperjie, ¥olandi, but not Ninja (he scares me). 👋👋👋
+Dedicated to Slinkse Ponie, Bek Ruiperjie (my Amerikian ¥olandi), ¥olandi, but not Ninja (he scares me). 👋👋👋
 
 
