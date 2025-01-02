@@ -38,7 +38,7 @@
 
 [Baby's on Fire](https://youtu.be/HcXNPI-IPPM?t=138) **NSFW** 🔞
 
-[Meta Baby's on Fire](https://www.youtube.com/watch?v=RO5M3KJs7qQ) **NSFW** 🔞
+[Metal Baby's on Fire](https://www.youtube.com/watch?v=RO5M3KJs7qQ) **NSFW** 🔞
 
 [Modern Dukes](https://www.youtube.com/watch?v=2IcsmAaDLck) **NSFW** 🔞
 
@@ -53,6 +53,6 @@
       / ** / |   \---
       \oo/  |   sjm
   
-Dedicated to Slinkse Ponie, Bek Ruiperjie (my Amerikian ¥olandi), ¥olandi, but not Ninja (he scares me). 👋👋👋
+Dedicated to Slinkse Ponie, Bek Ruiperjie (my Amerikan ¥olandi), ¥olandi, but not Ninja (he scares me). 👋👋👋
 
 
