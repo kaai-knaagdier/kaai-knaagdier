@@ -6,6 +6,14 @@
 - 😄 Pronouns: s/he and hirm
 - ⚡ Fun fact: Zef is kewl.
 
-Dedicated to Bek Ruiperjie, ¥olandi, but not Ninja (he scares me). (Hi!)
+      (\     /)
+      % ^---^ %
+      %{ 0 0 }%%
+       ( *** ) \%%
+       / ** /   \%%
+      / ** / |   \---
+      \oo/  |   sjm
+  
+Dedicated to Slinkse Ponie, Bek Ruiperjie, ¥olandi, but not Ninja (he scares me). 👋👋👋
 
 
