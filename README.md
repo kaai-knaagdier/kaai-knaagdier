@@ -1,5 +1,7 @@
 # Statement of Personal Philosophy
-**$¢£¤¥ƒ֏؋৲৳৻૱௹฿៛₠₡₢₣₤₥₦₧₨₩₪₫€₭₮₯₰₱₲₳₴₵₶₷₸₹₺₻₼₽₾₿ℳ꠸﷼﹩＄￠￡￥￦¢¤ƒ֏؋৲৳৻૱௹  ฿៛₠₡₢₣₤₥₦₧₩₪₫₭₮₯₰₱₲₳₴₵₹₺₻₼₽₾₿ℳ﷼₶₸**
+$¢£¤¥ƒ֏؋৲৳৻૱௹฿៛₠₡₢₣₤₥₦₧₨₩₪₫€₭₮₯₰₱₲₳₴₵₶₷₸₹₺₻₼₽₾₿ℳ﷼￦¢¤ƒ֏؋৲৳৻૱௹฿៛₠₡₢₣₤₥₦₧₩₪₫₭₮₯₰₱₲₳₴₵₹₺₻₼₽₾₿ℳ﷼₶₸
+
+<img alt="Gold Bullion Pile" src="gold-bullion.jpg" width="400">
 
 # Meet Kaai
 ![Man at work drinking.](under-construction.gif)
