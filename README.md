@@ -36,6 +36,7 @@
 
 [Meta Baby's on Fire](https://www.youtube.com/watch?v=RO5M3KJs7qQ) **NSFW** 🔞
 
+[Modern Dukes](https://www.youtube.com/watch?v=2IcsmAaDLck) **NSFW** 🔞
 
 
 ## Dedication
