@@ -1,5 +1,5 @@
 # Statement of Personal Philosophy
-$¢£¤¥ƒ֏؋৲৳৻૱௹฿៛₠₡₢₣₤₥₦₧₨₩₪₫€₭₮₯₰₱₲₳₴₵₶₷₸₹₺₻₼₽₾₿ℳ﷼￦¢¤ƒ֏؋৲৳৻૱
+$¢£¤¥ƒ֏؋৲৳৻૱௹฿៛₠₡₢₣₤₥₦₧₨₩₪₫€₭₮₯₰₱₲₳₴₵₶₷₸₹₺₻₼₽₾₿ℳ﷼￦
 
 <img alt="Gold Bullion Pile" src="gold-bullion.jpg" width="400">
 
@@ -31,7 +31,22 @@ $¢£¤¥ƒ֏؋৲৳৻૱௹฿៛₠₡₢₣₤₥₦₧₨₩₪₫€₭�
     So long ago
 
     -- Genesis, Land of Confusion
-  
+
+    And once we stopped a twelvemonth, where
+    Five-score Bohemians began
+    Their scheme to cheapen bed and fare,
+    Upon a late-discovered plan;
+    “For see,” they said, “the sum how small
+    By which one pilgrim’s wants are met!
+    And if a host together fall,
+    What need of any cash at all?”
+    Though how it worked I half forget,
+    Yet still the same old dance and song
+    We found,—the kindly, blithesome throng
+    And joyance of Bohemia.
+
+    -- E.C. Stedman, Bohemia: A Pilgrimige (Chapter XV "On Libre Software")
+
 ## Cool Tunes
 
 [Metal I Fink You Freeky](https://www.youtube.com/watch?v=hNCeNxSnwes) **NSFW** 🔞
